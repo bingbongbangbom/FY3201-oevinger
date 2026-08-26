@@ -1,1 +1,1 @@
-# Øvinger FY3201
+# Miniprosjekter FY3201 Atmosfærefysikk og klimaendringer
